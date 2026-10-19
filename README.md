@@ -1,2 +1,5 @@
-## <p align="center"><img width="498" height="278" alt="yugi-tsukasa" src="https://github.com/user-attachments/assets/1faa3f98-03a9-4cdd-bde9-207d46b21d21" />
-<p align="center"><img width="498" height="403" alt="tsukasa-yugi-baby-tsukasa" src="https://github.com/user-attachments/assets/d7905136-732f-4f69-abe2-1c9c7f7af1b6" /> 
+<p align="center"> ${\textsf{\color{#C21D85}ミ☆  "       𝓐𝓶𝓪𝓷𝓮, 𝓐𝓶𝓪𝓷𝓮!!      ♡       "}}$
+
+
+<p align="center"><img src="https://i.pinimg.com/736x/12/54/0a/12540ad3be9e7e3e884db82a64390c7a.jpg" alt="Afbeelding van verhaalpin"/>
+
